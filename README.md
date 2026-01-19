@@ -1,1 +1,1 @@
-![twitter](https://x.com/saltjsx)
+[twitter](https://x.com/saltjsx)
